@@ -138,5 +138,5 @@ Paciente jovem
 
 
 ### Para entrar em Contato:
-Esmeralda Abtibol - 2024003306@ifam.edu.br - (92) 99492-15-87
-Manoel Leão - 2024000289@ifam.edu.br - (92) 99263-6922
+Esmeralda Abtibol - esmeraldaabtibol@gmail.com
+Manoel Leão - manoelarthur063@gmail.com
